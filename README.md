@@ -1,7 +1,7 @@
 ![hearts-heart-tunnel](https://github.com/kaaziee/kaaziee/assets/153534203/a215e4c3-1367-48f5-8d6c-940ec7dba507)
 
 
-# Hey, I'm Kaazie! 
+# Account no longer access to, here to let you know
 
 I'm an pentester and programmer. 
 
